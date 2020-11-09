@@ -1,1 +1,0 @@
-# dymprojec.github.io
